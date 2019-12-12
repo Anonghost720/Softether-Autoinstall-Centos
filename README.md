@@ -5,7 +5,7 @@
 * An open source VPN project from University of Tsukuba Japan<br />
 * Centos 6 or 7 x64
 
-# Buy ready to go and Ddos protected vpns at https://securityteamvpn.com
+# Buy ready to go and Ddos protected vpns at https://ghostgamingvpn.io
 The best gaming vpns on the market, we sale gaming vpns with top ddos protection.
 for just $9 you have access to over 30 locations from OVH, NFO, BLAZIN and many more.
 
